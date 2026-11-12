@@ -1,0 +1,1 @@
+# kripta-s-nulya-img
